@@ -34,3 +34,10 @@ DAY 5
  DAY 6
  
 On the sixth day of our induction program we first attended the UNIVERSAL HUMAN CLASSES in the morning. After that we had peer intereaction they taught us the basic of CANVA and taught us to create templates. In the afternoon, DR. HARWINDER SINGH motivated us to join NCC(NATIONAL CADET CORPS). Then Er.JASVIR SINGH GREWAL coordinator of NSS motivated us to join NSS. It was a nice day as we saw our campus more deeply.
+
+DAY 7
+![1000116954](https://github.com/user-attachments/assets/278e6552-bb90-4594-9661-0883cc01da53)
+![1000116947](https://github.com/user-attachments/assets/b4c35d72-5781-49a9-91ea-fd10ab7a5efc)
+
+
+On the seventh day of our introduction program we firstly intereacted with Er.kanwardeep Kalra in the auditorium. she introduced us with the various factors that matters the most when we are headed to an interview or for placement in a company. Then JASWINDER SINGH helped us to clear some basic science concepts with ease and in a fun way.  Sir practically tell us about  how to count our bones
