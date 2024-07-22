@@ -1,9 +1,11 @@
-HELLO!
-I am satvir singh from b tech 1st year
-Branch:CSE    SECTION-E 
-I am interested in coding 
-This is my excel certificate ![1000116941](https://github.com/user-attachments/assets/c621f1c6-7db2-4c63-83db-30e63948acd1)
-INDUCTION PROGRAM ACTIVITIES 
+- HELLO!
+
+- I am satvir singh from b tech 1st year
+- Branch:CSE    SECTION-E 
+- I am interested in coding 
+- This is my excel certificate ![1000116941](https://github.com/user-attachments/assets/c621f1c6-7db2-4c63-83db-30e63948acd1)
+ 
+-INDUCTION PROGRAM ACTIVITIES 
 
 DAY 1
 ![1000116949](https://github.com/user-attachments/assets/284f6c6b-53b4-4129-91b8-337f79f689ea)
