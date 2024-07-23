@@ -42,3 +42,12 @@ DAY 7
 
 
 On the seventh day of our introduction program we firstly intereacted with Er.kanwardeep Kalra in the auditorium. she introduced us with the various factors that matters the most when we are headed to an interview or for placement in a company. Then JASWINDER SINGH helped us to clear some basic science concepts with ease and in a fun way.  Sir practically tell us about  how to count our bones
+
+DAY 8
+
+
+https://github.com/user-attachments/assets/fcf2716c-9ba8-4fed-b543-cd5d69212bb3
+
+
+
+On the eighth day of our induction program we firstly intereacted with DR SB singh who was also Ex principal of our college.He give us some activities to write and he shared his experience with us that was precious,very inspiring and motivated . After that we interreacted with Respected Dr Pushpinder Singh he shared his experience with us and Sir's knowledge is mind blowing  then our senior perform bhangra to entertain  us and after that we interreacted  Mrs sushmita mam she was lovingly with nature and tell us to sustain it
