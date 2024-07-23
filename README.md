@@ -45,9 +45,10 @@ On the seventh day of our introduction program we firstly intereacted with Er.ka
 
 DAY 8
 
-
 https://github.com/user-attachments/assets/fcf2716c-9ba8-4fed-b543-cd5d69212bb3
 
-
-
 On the eighth day of our induction program we firstly intereacted with DR SB singh who was also Ex principal of our college.He give us some activities to write and he shared his experience with us that was precious,very inspiring and motivated . After that we interreacted with Respected Dr Pushpinder Singh he shared his experience with us and Sir's knowledge is mind blowing  then our senior perform bhangra to entertain  us and after that we interreacted  Mrs sushmita mam she was lovingly with nature and tell us to sustain it
+
+DAY 9
+
+On the nineth day of induction program there was our classes of maths and basic concepts of chemistry which was amazing session and well explained by our teachers all the concepts are crystal clear 
